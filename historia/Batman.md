@@ -1,0 +1,3 @@
+# Batman
+
+La historia de Batman narra la vida de Bruce Wayne, un millonario que, traumatizado por el asesinato de sus padres cuando era niño, dedica su vida a combatir el crimen en Ciudad Gótica. Impulsado por la venganza y un fuerte sentido de la justicia, entrena su cuerpo y mente para convertirse en un vigilante que usa un disfraz de murciélago para infundir terror en los criminales. Sin superpoderes, Batman utiliza su inteligencia, tecnología y habilidades de detective y combate para luchar contra el crimen, convirtiéndose en el alter ego de Bruce Wayne, un filántropo y hombre de negocios. 
